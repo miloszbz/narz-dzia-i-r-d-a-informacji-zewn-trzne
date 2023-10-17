@@ -1,0 +1,1 @@
+# narz-dzia-i-r-d-a-informacji-zewn-trzne
